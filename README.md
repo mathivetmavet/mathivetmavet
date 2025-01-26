@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, business and cybersecurity.
 - 🌱 I'm currently learning the basics of programming.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ? mathivetmavet@gmail.com
+- 📫 How to reach me? mathivetmavet@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
